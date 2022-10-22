@@ -3,4 +3,4 @@
 *Just getting to explore github.*
 ---
 > Yours truly.
-Thank you.
+Thank you so much.
